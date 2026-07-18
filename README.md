@@ -13,16 +13,7 @@
 </table>
 <div style="text-align:center;"><span style="color:rgb(255,173,210);font-family:Arial, Helvetica, sans-serif;font-size:14px;">HIELLO!!! MORE INFO ON MY SITES!! &nbsp;</span></div>
 
-<table style="width:30%;margin:auto;height:15px;">
-<colgroup>
-<col style="width:100%;">
-</colgroup>
-<tbody>
-<tr style="height:30px;">
-<td><img src="https://64.media.tumblr.com/043faa8a728a6c844f22feda927f1468/9b6e1f2ce392d007-37/s540x810/4f2d7791de11a931cc1140d66176cf8662b7f76e.gif" alt="4f2d7791de11a931cc1140d66176cf8662b7f76e.gif" style="width:10000px;"></td>
-</tr>
-</tbody>
-</table>
+
 
 <p style="text-align:center;"><a href="https://puppawz13.straw.page" style="background-color:rgb(34,34,34);" target="_blank" rel="noreferrer noopener"><span style="color:rgb(255,194,228);"><u>STRAWPAGE</u></span></a></p>
 

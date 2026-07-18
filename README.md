@@ -1,24 +1,7 @@
-<table style="width:30%;height:40px;margin:auto;">
-	<colgroup>
+<div align = "center"
+<td><img src="https://64.media.tumblr.com/1c5ca7deaa4aefac561de170e50ec7e4/2f1c628e28466e61-e6/s250x400/10a6c7b2040582f49339a1673113013ca83d21fa.pnj" style="width:450px;display:inline-block;vertical-align:bottom;margin-right:5px;margin-left:5px;text-align:center;" alt="10a6c7b2040582f49339a1673113013ca83d21fa.pnj"></td>	
 
-<col style="width:40%;">
-
-</colgroup>
-
-<tbody>
-<tr>
-<td><img src="https://64.media.tumblr.com/1c5ca7deaa4aefac561de170e50ec7e4/2f1c628e28466e61-e6/s250x400/10a6c7b2040582f49339a1673113013ca83d21fa.pnj" style="width:1000px;display:inline-block;vertical-align:bottom;margin-right:5px;margin-left:5px;text-align:center;" alt="10a6c7b2040582f49339a1673113013ca83d21fa.pnj"></td>	
-</tr>
-</tbody>
-</table>
-<div style="text-align:center;"><span style="color:rgb(255,173,210);font-family:Arial, Helvetica, sans-serif;font-size:14px;">HIELLO!!! MORE INFO ON MY SITES!!♡ &nbsp;</span></div>
-
-
-
-
-<p style="text-align:center;"><a href="https://puppawz13.straw.page" style="background-color:rgb(34,34,34);" target="_blank" rel="noreferrer noopener"><span style="color:rgb(255,194,228);"><u>STRAWPAGE</u></span></a></p>
-
-<p style="text-align:center;"><span style="color:rgb(255,194,228);"><a href="https://en.pronouns.page/@Puppy.pawz13" target="_blank" rel="noreferrer noopener">PRONOUNS. PAGE</a></span></p>
+<p><i><a href="https://puppypawz13.atabook.org/">ata</a> | <a href="https://puppipawz13.straw.page/">straw</a> | <a href="https://en.pronouns.page/@Puppy.pawz13">pronouns.page</a> </i></p>
 
 <table style="width:70%;height:50px;margin:auto;">
 <colgroup>

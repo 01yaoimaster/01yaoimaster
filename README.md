@@ -11,24 +11,14 @@
 </tr>
 </tbody>
 </table>
-<div style="text-align:center;"><span style="color:rgb(255,173,210);font-family:Arial, Helvetica, sans-serif;font-size:14px;">HIELLO!!! MORE INFO ON MY SITES!! &nbsp;</span></div>
+<div style="text-align:center;"><span style="color:rgb(255,173,210);font-family:Arial, Helvetica, sans-serif;font-size:14px;">HIELLO!!! MORE INFO ON MY SITES!!♡ &nbsp;</span></div>
+
 
 
 
 <p style="text-align:center;"><a href="https://puppawz13.straw.page" style="background-color:rgb(34,34,34);" target="_blank" rel="noreferrer noopener"><span style="color:rgb(255,194,228);"><u>STRAWPAGE</u></span></a></p>
 
 <p style="text-align:center;"><span style="color:rgb(255,194,228);"><a href="https://en.pronouns.page/@Puppy.pawz13" target="_blank" rel="noreferrer noopener">PRONOUNS. PAGE</a></span></p>
-
-<table style="width:20%;height:100px;margin:auto;">
-<colgroup>
-<col style="width:100%;">
-</colgroup>
-<tbody>
-<tr>
-<td><img src="https://64.media.tumblr.com/9c2169ed6a336da8b081e4915ad33077/9b6e1f2ce392d007-de/s540x810/cc3ffa4a51fc171c7e0ee96a6e72cb8c720dcc5f.gif" style="width:1000px;" alt="cc3ffa4a51fc171c7e0ee96a6e72cb8c720dcc5f.gif"></td>
-</tr>
-</tbody>
-</table>
 
 <table style="width:70%;height:50px;margin:auto;">
 <colgroup>

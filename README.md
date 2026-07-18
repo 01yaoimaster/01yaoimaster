@@ -49,3 +49,7 @@
 </tr>
 </tbody>
 </table>
+<p><i>&#9825; "..He's right...i am a <b>murderer</b>.  But until six months ago.." &#42267; . </i></p>
+<div class="npf_row"><figure class="tmblr-full" data-orig-height="484" data-orig-width="736"><img src="https://64.media.tumblr.com/dcb7892b1570eb0cf6f915320d8da785/a94646ab4aa0d535-0d/s1280x1920/635939ff6869513d4a0e22dd9ade6c015b363f40.jpg" data-orig-height="484" data-orig-width="736" srcset="https://64.media.tumblr.com/dcb7892b1570eb0cf6f915320d8da785/a94646ab4aa0d535-0d/s1280x1920/635939ff6869513d4a0e22dd9ade6c015b363f40.jpg 736w" sizes="(max-width: 736px) 100vw, 736px"></figure>
+</div>
+<p><i>&#9734; "... I was just an ordinary highschool girl. " /q . &#10009;</i></p>

@@ -1,4 +1,7 @@
 <div align = "center"
+  
+<td><img src="https://hitscounter.dev/api/hit?url=https%3A%2F%2Fgithub.com%2F01yaoimaster&label=%23+%22+awesome+ppl%21%21%21+%22&icon=postage-heart-fill&color=%23ffabe9&message=&style=plastic&tz=localtime"></div>
+<div align = "center"
 <td><img src="https://64.media.tumblr.com/1c5ca7deaa4aefac561de170e50ec7e4/2f1c628e28466e61-e6/s250x400/10a6c7b2040582f49339a1673113013ca83d21fa.pnj" style="width:450px;display:inline-block;vertical-align:bottom;margin-right:5px;margin-left:5px;text-align:center;" alt="10a6c7b2040582f49339a1673113013ca83d21fa.pnj"></td>	
 
 <p><i><a href="https://puppypawz13.atabook.org/">ata</a> | <a href="https://puppipawz13.straw.page/">straw</a> | <a href="https://en.pronouns.page/@Puppy.pawz13">pronouns.page</a> </i></p>

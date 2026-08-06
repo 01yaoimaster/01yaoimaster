@@ -29,7 +29,7 @@
 </tbody>
 </table>
 
-
+<td><img src="https://64.media.tumblr.com/528ff664d45a389d10d0ad74956b9dd9/9b6e1f2ce392d007-1e/s400x600/24ca64c33eacbf79d08880195c2fbaa6d1d3f3d3.gif"></td>
 <p><i>&#9825; "..He's right...i am a <b>murderer</b>.  But until six months ago.." &#42267; . </i></p>
 <div class="npf_row"><figure class="tmblr-full" data-orig-height="484" data-orig-width="736"><img src="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif" data-orig-height="126" data-orig-width="158" srcset="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif 158w" sizes="(max-width: 736px) 100vw, 736px"></figure>
 </div>

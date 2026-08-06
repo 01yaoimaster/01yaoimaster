@@ -31,7 +31,7 @@
 
 
 <p><i>&#9825; "..He's right...i am a <b>murderer</b>.  But until six months ago.." &#42267; . </i></p>
-<div class="npf_row"><figure class="tmblr-full" data-orig-height="484" data-orig-width="736"><img src="https://64.media.tumblr.com/dcb7892b1570eb0cf6f915320d8da785/a94646ab4aa0d535-0d/s1280x1920/635939ff6869513d4a0e22dd9ade6c015b363f40.jpg" data-orig-height="484" data-orig-width="736" srcset="https://64.media.tumblr.com/dcb7892b1570eb0cf6f915320d8da785/a94646ab4aa0d535-0d/s1280x1920/635939ff6869513d4a0e22dd9ade6c015b363f40.jpg 736w" sizes="(max-width: 736px) 100vw, 736px"></figure>
+<div class="npf_row"><figure class="tmblr-full" data-orig-height="484" data-orig-width="736"><img src="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif" data-orig-height="126" data-orig-width="158" srcset="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif 158w" sizes="(max-width: 736px) 100vw, 736px"></figure>
 </div>
 <p><i>&#9734; "... I was just an ordinary highschool girl. " /q . &#10009;</i></p>
 <table style="width:90%;height:60px;margin:auto;">

@@ -7,14 +7,6 @@
 <td><img src="https://64.media.tumblr.com/54022916f870bffebbaa630bd0682b6c/9b6e1f2ce392d007-fe/s540x810/88d7ee008f544c38d7aa1ba33317bcf25e7164c0.png" style="width:500px;"></td>
 
 <p><i><a href="https://puppypawz13.atabook.org/">ata</a> | <a href="https://pupperpawz.straw.page/">straw</a> | <a href="https://en.pronouns.page/@Puppy.pawz13">pronouns.page</a> </i></p>
-<p>Call me Pluey/Butcher/Pup or Milk! </p>
-<p>I prefer he/him pronouns,, and I am a MINOR. </p>
-
-</div>
-<p>Feel free to int and c+h unless I have dniuf/id in my name! </p>
-<p>I don't mind ships,,,especially if it's a ship I like!! </p>
-<p>Plsss bmf ! I might be awkward at first but im very nice!! </p>
-<p>I have <i>anger issues </i>so pls be patient with me . </p>
 <figure data-orig-height="132" data-orig-width="94"><img src="https://64.media.tumblr.com/1ebe2db9a1a538e1321363b69c6c4b2e/7856f04b3d9f682d-24/s250x250_c1/5fe2d2f3ac337f6a1b80870f0f9e36480c9983aa.gifv" data-orig-height="132" data-orig-width="94" srcset="https://64.media.tumblr.com/1ebe2db9a1a538e1321363b69c6c4b2e/7856f04b3d9f682d-24/s250x250_c1/5fe2d2f3ac337f6a1b80870f0f9e36480c9983aa.gifv 94w" sizes="(max-width: 94px) 100vw, 94px"></figure>
 <table style="width:70%;height:50px;margin:auto;">
 <colgroup>
@@ -40,10 +32,16 @@
 </table>
 
 <td><img src="https://64.media.tumblr.com/528ff664d45a389d10d0ad74956b9dd9/9b6e1f2ce392d007-1e/s400x600/24ca64c33eacbf79d08880195c2fbaa6d1d3f3d3.gif"></td>
-<p><i>&#9825; "..He's right...i am a <b>murderer</b>.  But until six months ago.." &#42267; . </i></p>
-<div class="npf_row"><figure class="tmblr-full" data-orig-height="484" data-orig-width="736"><img src="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif" data-orig-height="126" data-orig-width="158" srcset="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif 158w" sizes="(max-width: 736px) 100vw, 736px"></figure>
+<p>Call me Pluey/Butcher/Pup or Milk! </p>
+<p>I prefer he/him pronouns,, and I am a MINOR. </p>
+
 </div>
-<p><i>&#9734; "... I was just an ordinary highschool girl. " /q . &#10009;</i></p>
+<p>Feel free to int and c+h unless I have dniuf/id in my name! </p>
+<p>I don't mind ships,,,especially if it's a ship I like!! </p>
+<img src="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif" data-orig-height="126" data-orig-width="158" srcset="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif 158w" sizes="(max-width: 736px) 100vw, 736px"><p>Plsss bmf ! I might be awkward at first but im very nice!! </p>
+<p>I have <i>anger issues </i>so pls be patient with me . </p>
+</figure>
+</div>
 <table style="width:90%;height:60px;margin:auto;">
 <colgroup>
 <col style="width:16.6667%;">
@@ -57,7 +55,6 @@
 <tr>
 <td>
 <img src="https://64.media.tumblr.com/7bedf3910b3f8e2d37320af81fa06e6d/9b6e1f2ce392d007-a7/s540x810/304476d7eff22a7cb864b6560893c43fbc95183a.gif" alt="304476d7eff22a7cb864b6560893c43fbc95183a.gif" style="width:1000px;">
-
 </td>
 <td><img src="https://64.media.tumblr.com/488e19dc260d07f8aa31bd0685093b7e/9b6e1f2ce392d007-c7/s540x810/b09f03458920608b8f68bcb43c195d204f54fd48.gif" style="width:1000px;" alt="b09f03458920608b8f68bcb43c195d204f54fd48.gif"></td>
 <td><img src="https://64.media.tumblr.com/0760ef2a78e90fc9cc02af3ee0f7870c/9b6e1f2ce392d007-1c/s540x810/30e1b2ce204edb6478c21bad185d5470c45386c7.gif" style="width:1000px;" alt="30e1b2ce204edb6478c21bad185d5470c45386c7.gif"></td>

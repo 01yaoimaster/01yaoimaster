@@ -2,7 +2,7 @@
 </div>  
 <a href="https://hits.sh/github.com/skittishpuppy/"><img alt="Hits" src="https://hits.sh/github.com/skittishpuppy.svg?style=plastic&label=(%C2%B4%5E%CF%89%5E%60)%20%F0%9D%9A%96%F0%9D%9A%A2%20%F0%9D%9A%95%F0%9D%9A%98%F0%9D%9A%9F%F0%9D%9A%8E%F0%9D%9A%95%F0%9D%9A%A2%20%F0%9D%9A%8B%F0%9D%9A%9E%F0%9D%9A%9D%F0%9D%9A%8C%F0%9D%9A%91%F0%9D%9A%8E%F0%9D%9A%9B%F0%9D%9A%9C%20.%20.%20%20%E2%99%A1&color=ff8fea&labelColor=ffa6ee"/></a></div>
 <div align = "center"
-<td><img src="https://64.media.tumblr.com/1c5ca7deaa4aefac561de170e50ec7e4/2f1c628e28466e61-e6/s250x400/10a6c7b2040582f49339a1673113013ca83d21fa.pnj" style="width:450px;display:inline-block;vertical-align:bottom;margin-right:5px;margin-left:5px;text-align:center;" alt="10a6c7b2040582f49339a1673113013ca83d21fa.pnj"></td>	
+<td><img src="https://64.media.tumblr.com/24f6145f3189a4262eaf025dcf635277/9b6e1f2ce392d007-c9/s540x810/a423f061f300d12b6e674d65cd9632fa8c678c5e.png" style="width:1000px;"></td>	
 
 <p><i><a href="https://puppypawz13.atabook.org/">ata</a> | <a href="https://pupperpawz.straw.page/">straw</a> | <a href="https://en.pronouns.page/@Puppy.pawz13">pronouns.page</a> </i></p>
 
@@ -57,4 +57,4 @@
 </tr>
 </tbody>
 </table>
-<p>THANKYOUTHANKYOU <a href="https://github.com/pt-walk-of-fame">Pt-walk-of-fame</a> EEKKK </p><div class="npf_row"><figure class="tmblr-full" data-orig-height="97" data-orig-width="628"><img src="https://64.media.tumblr.com/7c07498b5ce75d41eea095aea10c1d74/4dc524eb40bddc5c-2e/s640x960/98a5cc5b0200bc3ae0b9441a3209a70d503101e0.jpg" data-orig-height="97" data-orig-width="628" srcset="https://64.media.tumblr.com/7c07498b5ce75d41eea095aea10c1d74/4dc524eb40bddc5c-2e/s640x960/98a5cc5b0200bc3ae0b9441a3209a70d503101e0.jpg 628w" sizes="(max-width: 628px) 100vw, 628px"></figure>
+<td></td><img src="https://64.media.tumblr.com/e7383e93fddde1250ffc9a033e04a95b/9b6e1f2ce392d007-54/s540x810/1ad03b2052e80c63a19f946f7da8f146dbb5c779.gif" style="width:1000px;"></td>

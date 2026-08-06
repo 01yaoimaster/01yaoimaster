@@ -1,6 +1,6 @@
 <div align = "center"
 </div>  
-<a href="https://hits.sh/github.com/skittishpuppy/"><img alt="Hits" src="https://hits.sh/github.com/skittishpuppy.svg?style=plastic&label=(%C2%B4%5E%CF%89%5E%60)%20%F0%9D%9A%96%F0%9D%9A%A2%20%F0%9D%9A%95%F0%9D%9A%98%F0%9D%9A%9F%F0%9D%9A%8E%F0%9D%9A%95%F0%9D%9A%A2%20%F0%9D%9A%8B%F0%9D%9A%9E%F0%9D%9A%9D%F0%9D%9A%8C%F0%9D%9A%91%F0%9D%9A%8E%F0%9D%9A%9B%F0%9D%9A%9C%20.%20.%20%20%E2%99%A1&color=ff8fea&labelColor=ffa6ee"/></a></div>
+<a href="https://hits.sh/github.com/skittishpuppy/"><img alt="Hits" src="https://hits.sh/github.com/skittishpuppy.svg?label=%E2%8C%97%20(%E3%80%83%5E%CF%89%5E%E3%80%83)%20%20.&color=ffffff&labelColor=000000"/></a>
 <div align = "center"
 <td><img src="https://64.media.tumblr.com/24f6145f3189a4262eaf025dcf635277/9b6e1f2ce392d007-c9/s540x810/a423f061f300d12b6e674d65cd9632fa8c678c5e.png" style="width:1000px;"></td>	
 

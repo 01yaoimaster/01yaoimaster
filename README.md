@@ -4,6 +4,8 @@
 <div align = "center"
 <td><img src="https://64.media.tumblr.com/24f6145f3189a4262eaf025dcf635277/9b6e1f2ce392d007-c9/s540x810/a423f061f300d12b6e674d65cd9632fa8c678c5e.png" style="width:1000px;"></td>	
 
+<td><img src="https://64.media.tumblr.com/54022916f870bffebbaa630bd0682b6c/9b6e1f2ce392d007-fe/s540x810/88d7ee008f544c38d7aa1ba33317bcf25e7164c0.png" style="width:500px;"></td>
+
 <p><i><a href="https://puppypawz13.atabook.org/">ata</a> | <a href="https://pupperpawz.straw.page/">straw</a> | <a href="https://en.pronouns.page/@Puppy.pawz13">pronouns.page</a> </i></p>
 
 <table style="width:70%;height:50px;margin:auto;">

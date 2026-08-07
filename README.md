@@ -1,10 +1,9 @@
 <div align = "center"
-</div>  
-<a href="https://hits.sh/github.com/skittishpuppy/"><img alt="Hits" src="https://hits.sh/github.com/skittishpuppy.svg?label=%E2%8C%97%20(%E3%80%83%5E%CF%89%5E%E3%80%83)%20%20.&color=ffffff&labelColor=000000"/></a>
-<div align = "center"
 <td><img src="https://64.media.tumblr.com/24f6145f3189a4262eaf025dcf635277/9b6e1f2ce392d007-c9/s540x810/a423f061f300d12b6e674d65cd9632fa8c678c5e.png" style="width:1000px;"></td>	
 
-<td><img src="https://64.media.tumblr.com/54022916f870bffebbaa630bd0682b6c/9b6e1f2ce392d007-fe/s540x810/88d7ee008f544c38d7aa1ba33317bcf25e7164c0.png" style="width:500px;"></td>
+<a href="https://hits.sh/github.com/skittishpuppy/"><img alt="Hits" src="https://hits.sh/github.com/skittishpuppy.svg?label=%E2%8C%97%20(%E3%80%83%5E%CF%89%5E%E3%80%83)%20%20.&color=ffffff&labelColor=000000"/></a>
+
+<div><td><img src="https://64.media.tumblr.com/54022916f870bffebbaa630bd0682b6c/9b6e1f2ce392d007-fe/s540x810/88d7ee008f544c38d7aa1ba33317bcf25e7164c0.png" style="width:500px;"></td>
 
 <p><i><a href="https://puppypawz13.atabook.org/">ata</a> | <a href="https://pupperpawz.straw.page/">straw</a> | <a href="https://en.pronouns.page/@Puppy.pawz13">pronouns.page</a> </i></p>
 <figure data-orig-height="132" data-orig-width="94"><img src="https://64.media.tumblr.com/1ebe2db9a1a538e1321363b69c6c4b2e/7856f04b3d9f682d-24/s250x250_c1/5fe2d2f3ac337f6a1b80870f0f9e36480c9983aa.gifv" data-orig-height="132" data-orig-width="94" srcset="https://64.media.tumblr.com/1ebe2db9a1a538e1321363b69c6c4b2e/7856f04b3d9f682d-24/s250x250_c1/5fe2d2f3ac337f6a1b80870f0f9e36480c9983aa.gifv 94w" sizes="(max-width: 94px) 100vw, 94px"></figure>

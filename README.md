@@ -36,9 +36,8 @@
 
 </div>
 <p>• Feel free to int and c+h unless I have dniuf/id in my name! I don't mind ships,,,especially if it's a ship I like!! • </p>
-<img src="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif" data-orig-height="126" data-orig-width="158" srcset="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif 158w" sizes="(max-width: 736px) 100vw, 736px"><p>Plsss bmf ! I might be awkward at first but im very nice!! </p>
-<p>I have <i>anger issues </i>so pls be patient with me . </p>
-<p>☆</p>
+<img src="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif" data-orig-height="126" data-orig-width="158" srcset="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif 158w" sizes="(max-width: 736px) 100vw, 736px"><p>• Plsss bmf ! I might be awkward at first but im very nice!! •</p>
+<p>• I have <i>anger issues </i>so pls be patient with me •</p>
 </figure>
 </div>
 <table style="width:90%;height:60px;margin:auto;">

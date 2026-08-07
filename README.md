@@ -33,10 +33,10 @@
 
 <td><img src="https://64.media.tumblr.com/528ff664d45a389d10d0ad74956b9dd9/9b6e1f2ce392d007-1e/s400x600/24ca64c33eacbf79d08880195c2fbaa6d1d3f3d3.gif"></td>
 <p>• Call me Pluey/Butcher/Pup or Milk! I prefer he/him pronouns,, and I am a MINOR •</p>
-
+<div align= "center"
 </div>
 <p>• Feel free to int and c+h unless I have dniuf/id in my name! I don't mind ships,,,especially if it's a ship I like!! • </p>
-<img src="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif" data-orig-height="126" data-orig-width="158" srcset="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif 158w" sizes="(max-width: 736px) 100vw, 736px"><p>• Plsss bmf ! I might be awkward at first but im very nice!! •</p>
+<img src="https://64.media.tumblr.com/5b40f01f9d5aa7396a802a649fe6efa6/9b6e1f2ce392d007-3a/s540x810/35c6611949d44e62712ee87e61be456bc50433be.gif" sizes="(max-width: 736px) 100vw, 736px"><p>• Plsss bmf ! I might be awkward at first but im very nice!! •</p>
 <p>• I have <i>anger issues </i>so pls be patient with me •</p>
 </figure>
 </div>
@@ -63,3 +63,7 @@
 </tbody>
 </table>
 <td></td><img src="https://64.media.tumblr.com/e7383e93fddde1250ffc9a033e04a95b/9b6e1f2ce392d007-54/s540x810/1ad03b2052e80c63a19f946f7da8f146dbb5c779.gif" style="width:1000px;"></td>
+<td></td><img src="https://64.media.tumblr.com/9c2169ed6a336da8b081e4915ad33077/9b6e1f2ce392d007-de/s540x810/cc3ffa4a51fc171c7e0ee96a6e72cb8c720dcc5f.gif"></div>
+<p>✮</p>
+<p>✹ byi, I am a tenna yumeshipper. i do not mind doubles at all and I will be very happy to interact with them! ✹</p>
+<p>- feel free to block me if ur uncomfortable! -</p>

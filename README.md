@@ -63,7 +63,7 @@
 </tbody>
 </table>
 <td></td><img src="https://64.media.tumblr.com/e7383e93fddde1250ffc9a033e04a95b/9b6e1f2ce392d007-54/s540x810/1ad03b2052e80c63a19f946f7da8f146dbb5c779.gif" style="width:1000px;"></td>
-<td></td><img src="https://64.media.tumblr.com/9c2169ed6a336da8b081e4915ad33077/9b6e1f2ce392d007-de/s540x810/cc3ffa4a51fc171c7e0ee96a6e72cb8c720dcc5f.gif"></div>
+<td></td><img src="https://64.media.tumblr.com/e5d8cc26cfece30ff2ec04fc9b96d197/9b6e1f2ce392d007-89/s540x810/13207d38c9061466d479ae11fcd33e539071180b.gif" style="width:200px;"></div>
 <p>✮</p>
 <p>✹ byi, I am a tenna yumeshipper. i do not mind doubles at all and I will be very happy to interact with them! ✹</p>
 <p>- feel free to block me if ur uncomfortable! -</p>

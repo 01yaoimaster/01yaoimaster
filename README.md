@@ -1,7 +1,6 @@
 <div align = "center"
-<td><img src="https://64.media.tumblr.com/24f6145f3189a4262eaf025dcf635277/9b6e1f2ce392d007-c9/s540x810/a423f061f300d12b6e674d65cd9632fa8c678c5e.png" style="width:1000px;"></td>	
-
 <a href="https://hits.sh/github.com/skittishpuppy/"><img alt="Hits" src="https://hits.sh/github.com/skittishpuppy.svg?label=%E2%8C%97%20(%E3%80%83%5E%CF%89%5E%E3%80%83)%20%20.&color=ffffff&labelColor=000000"/></a>
+<td><img src="https://64.media.tumblr.com/24f6145f3189a4262eaf025dcf635277/9b6e1f2ce392d007-c9/s540x810/a423f061f300d12b6e674d65cd9632fa8c678c5e.png" style="width:1000px;"></td>	
 
 <div><td><img src="https://64.media.tumblr.com/54022916f870bffebbaa630bd0682b6c/9b6e1f2ce392d007-fe/s540x810/88d7ee008f544c38d7aa1ba33317bcf25e7164c0.png" style="width:500px;"></td>
 

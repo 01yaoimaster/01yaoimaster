@@ -1,4 +1,13 @@
 <div align = "center"
+<div class="npf_row"><figure class="tmblr-full" data-orig-height="116" data-orig-width="1266"><img src="https://64.media.tumblr.com/989f4633fb54acf8bbee1342f430eeb4/9b6e1f2ce392d007-68/s540x810/1ae4b1fe7647bacd90a52688acf63602ec448667.png" data-orig-height="116" data-orig-width="1266" srcset="https://64.media.tumblr.com/989f4633fb54acf8bbee1342f430eeb4/9b6e1f2ce392d007-68/s540x810/1ae4b1fe7647bacd90a52688acf63602ec448667.png 1266w" sizes="(max-width: 1266px) 100vw, 1266px">
+<div align = "center"
+</figure>
+</div>
+<p>- my nitro commissions r open! Click <i><a href="https://pup13comms.carrd.co/">here</a></i> for more info , , , (&acute;^&omega;^`) -</p>
+<p>• BUY MY COMMISSIONS BOI!! •</p>
+<figure data-orig-height="126" data-orig-width="158"><img src="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif" data-orig-height="126" data-orig-width="158" srcset="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif 158w" sizes="(max-width: 158px) 100vw, 158px"></figure> 
+<p></p>
+<div align = "center"
 <a href="https://hits.sh/github.com/skittishpuppy/"><img alt="Hits" src="https://hits.sh/github.com/skittishpuppy.svg?label=%E2%8C%97%20(%E3%80%83%5E%CF%89%5E%E3%80%83)%20%20.&color=ffffff&labelColor=000000"/></a>
 <td><img src="https://64.media.tumblr.com/24f6145f3189a4262eaf025dcf635277/9b6e1f2ce392d007-c9/s540x810/a423f061f300d12b6e674d65cd9632fa8c678c5e.png" style="width:1000px;"></td>	
 <div><td><img src="https://64.media.tumblr.com/54022916f870bffebbaa630bd0682b6c/9b6e1f2ce392d007-fe/s540x810/88d7ee008f544c38d7aa1ba33317bcf25e7164c0.png" style="width:500px;"></td>
@@ -38,6 +47,7 @@
 <p>• Feel free to int and c+h unless I have dniuf/id in my name! I don't mind ships,,,especially if it's a ship I like!! • </p>
 <img src="https://64.media.tumblr.com/5b40f01f9d5aa7396a802a649fe6efa6/9b6e1f2ce392d007-3a/s540x810/35c6611949d44e62712ee87e61be456bc50433be.gif" sizes="(max-width: 736px) 100vw, 736px"><p>• Plsss bmf ! I might be awkward at first but im very nice!! •</p>
 <p>• I have <i>anger issues </i>so pls be patient with me •</p>
+<div align = "center"
 </figure>
 </div>
 <table style="width:90%;height:60px;margin:auto;">
@@ -67,4 +77,4 @@
 <p>✮</p>
 <p>✹ byi, I am a tenna yumeshipper. i do not mind doubles at all and I will be very happy to interact with them! ✹</p>
 <p>- feel free to block me if ur uncomfortable! -</p>
-<img src="https://64.media.tumblr.com/30274a3da6b1505bab7b9ea56177b809/9b6e1f2ce392d007-cd/s540x810/dcebb7137c35c4077bb02d7d3d8a125788f9ff26.webp">
+<img src="https://64.media.tumblr.com/30274a3da6b1505bab7b9ea56177b809/9b6e1f2ce392d007-cd/s540x810/dcebb7137c35c4077bb02d7d3d8a125788f9ff26.webp" style=width:100px;">

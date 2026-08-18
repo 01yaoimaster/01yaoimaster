@@ -3,8 +3,8 @@
 <div align = "center"
 </figure>
 </div>
-<p>- my nitro commissions r open! Click <i><a href="https://pup13comms.carrd.co/">here</a></i> for more info , , , (&acute;^&omega;^`) -</p>
-<p>• BUY MY COMMISSIONS BOI!! contact me on my discord (waffle_macaroni) if ur interested! •</p>
+<p>- my robux commissions r open! Click <i><a href="https://pupzrobuxcommsyuhyuh.carrd.co/">here</a></i> for more info , , , (&acute;^&omega;^`) -</p>
+<p>• BUY MY COMMISSIONS BOI!! 👀👀 •</p>
 <figure data-orig-height="126" data-orig-width="158"><img src="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif" data-orig-height="126" data-orig-width="158" srcset="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif 158w" sizes="(max-width: 158px) 100vw, 158px"></figure> 
 <p></p>
 <div align = "center"

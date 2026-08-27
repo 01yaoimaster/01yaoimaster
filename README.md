@@ -44,7 +44,7 @@
 <p>• Call me Pluey/Butcher/Pup or Milk! I prefer he/him pronouns,, and I am a MINOR •</p>
 <div align= "center"
 </div>
-<p>• Feel free to int and c+h unless I have dniuf/id in my name! I don't mind ships,,,especially if it's a ship I like!! • </p>
+<p>• Feel free to int and c+h unless I have dniuf/id in my name! some of my kins: unpleasant,normalnpc, pluey etc. • </p>
 <img src="https://64.media.tumblr.com/5b40f01f9d5aa7396a802a649fe6efa6/9b6e1f2ce392d007-3a/s540x810/35c6611949d44e62712ee87e61be456bc50433be.gif" sizes="(max-width: 736px) 100vw, 736px"><p>• Plsss bmf ! I might be awkward at first but im very nice!! •</p>
 <p>• I have <i>anger issues </i>so pls be patient with me •</p>
 <div align = "center"

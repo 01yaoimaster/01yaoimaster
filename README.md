@@ -4,8 +4,8 @@
 </figure>
 </div>
 <p>- my robux commissions r open! Click <i><a href="https://pupzrobuxcommsyuhyuh.carrd.co/">here</a></i> for more info , , , (&acute;^&omega;^`) -</p>
-<p>• BUY MY COMMISSIONS BOI!! 👀👀 •</p>
-<figure data-orig-height="126" data-orig-width="158"><img src="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif" data-orig-height="126" data-orig-width="158" srcset="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif 158w" sizes="(max-width: 158px) 100vw, 158px"></figure> 
+<p>• BUY MY COMMISSIONS BOI!! also plez follow muh twitter... •</p>
+<figure data-orig-height="126" data-orig-width="158"><img src="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif" data-orig-height="126" data-orig-width="158" srcset="https://64.media.tumblr.com/398d8ea88719e8603a34a21cc33321e3/9b6e1f2ce392d007-74/s540x810/895569222641d2409a6db57270228f2742fc12bd.gif 158w" sizes="(max-width: 158px) 100vw, 158px"></figure>
 <p></p>
 <div align = "center"
 <a href="https://hits.sh/github.com/skittishpuppy/"><img alt="Hits" src="https://hits.sh/github.com/skittishpuppy.svg?label=%E2%8C%97%20(%E3%80%83%5E%CF%89%5E%E3%80%83)%20%20.&color=ffffff&labelColor=000000"/></a>

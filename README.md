@@ -41,10 +41,10 @@
 </table>
 
 <td><img src="https://64.media.tumblr.com/528ff664d45a389d10d0ad74956b9dd9/9b6e1f2ce392d007-1e/s400x600/24ca64c33eacbf79d08880195c2fbaa6d1d3f3d3.gif"></td>
-<p>• Call me Pluey/Butcher/Pup or Milk! I prefer he/him pronouns,, and I am a MINOR •</p>
+<p>• Call me Pluey/Butch/Scag or Pup! I prefer he/him pronouns,, and I am a MINOR •</p>
 <div align= "center"
 </div>
-<p>• Feel free to int and c+h unless I have dniuf/id in my name! some of my kins: unpleasant,normalnpc, pluey etc. • </p>
+<p>• Feel free to int and c+h unless I have dniuf/id in my name! some of my kins: unpleasant,scag, pluey etc. • </p>
 <img src="https://64.media.tumblr.com/5b40f01f9d5aa7396a802a649fe6efa6/9b6e1f2ce392d007-3a/s540x810/35c6611949d44e62712ee87e61be456bc50433be.gif" sizes="(max-width: 736px) 100vw, 736px"><p>• Plsss bmf ! I might be awkward at first but im very nice!! •</p>
 <p>• I have <i>anger issues </i>so pls be patient with me •</p>
 <div align = "center"

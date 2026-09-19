@@ -78,4 +78,4 @@
 <p>✹ byi, I am a tenna yumeshipper. i do not mind doubles at all and I will be very happy to interact with them! ✹</p>
 <p>- feel free to block me if ur uncomfortable! -</p>
 <img src="https://64.media.tumblr.com/30274a3da6b1505bab7b9ea56177b809/9b6e1f2ce392d007-cd/s540x810/dcebb7137c35c4077bb02d7d3d8a125788f9ff26.webp" style=width:100px;">
-<p> please don't vent to me. I'm at my lowest and I genuinely don't want to hear other people's problems when I can hardly deal with mine. thank you. </p>
+<p> I'm currently very overwhelmed with stuff so I might be dry or tired. sorry! </p>
